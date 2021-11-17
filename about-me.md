@@ -1,0 +1,1 @@
+My name is Tierney, I am a student at Loyola University Chicago pursuing my Bachelor's in Information Technology. In my free time I like to cook, play videogames, browse Reddit and spend time with my friends. 
